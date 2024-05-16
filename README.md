@@ -28,4 +28,7 @@ https://rodekruis.sharepoint.com/sites/510-DehVK-510/Gedeelde%20documenten/Produ
 https://rodekruis.sharepoint.com/sites/510-DehVK-510/Gedeelde%20documenten/Product%20Management/04_product%20research/Features%20research%20documents/Sensitive%20feedback/Day2%20PGI%20Armenia%20(1).pptx?d=wb0f7d7131a494920a435ebd66320b900&csf=1&web=1&e=GhWa8N   
 </body>
 
-
+3. IFRC tool kit
+Whole IFRC feedback kit: https://communityengagementhub.org/ifrc-feedback-kit-tools/
+Sensitive feedback guide: https://communityengagementhub.org/wp-content/uploads/sites/2/2022/08/IFRC_CF_Module5_EN_20221020.pdf
+Sensitive feedback SOPs (I think): https://view.officeapps.live.com/op/view.aspx?src=https%3A%2F%2Fcommunityengagementhub.org%2Fwp-content%2Fuploads%2Fsites%2F2%2F2022%2F08%2FFeedback-tool-33-Steps-to-take-when-receiving-sensitive-feedback.docx&wdOrigin=BROWSELINK
